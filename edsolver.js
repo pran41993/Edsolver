@@ -1,1 +1,0 @@
-https://edsolver.pran.lol/
